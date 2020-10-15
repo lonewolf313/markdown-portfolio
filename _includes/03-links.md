@@ -1,2 +1,2 @@
-Github Link - www.github.com/lonewolf313
+([Socials know ](www.github.com/lonewolf313))
 
